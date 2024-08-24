@@ -10,9 +10,3 @@ https://ownzyou.com/zone/149574
 
 
 
-
-
-
-## zerodaymarket.com
-
-![image](https://github.com/user-attachments/assets/229a2d66-9642-4071-a219-a941b37c2426)
